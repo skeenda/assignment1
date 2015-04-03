@@ -4,4 +4,4 @@ Programming Background: I started programming last year as a freshman, it has al
 we didn't have a good computer program at my high school. I have grown to love programming
 and I am super interested in website development because it has so many options and it seems like
 a lot of fun.
-
+I am very excited to take this class and I think that it will be very interesting to do so.
